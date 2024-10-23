@@ -1,19 +1,14 @@
 # Grupo Six
 
 ## Sobre Nós
-O [Grupo Six](https://ogruposix.com.br/) se destaca como uma das principais empresas no marketing de resposta direta na América Latina. Nossa expertise especializada em vendas através de copys persuasivas e do tráfego pago é o que nos diferencia.
+O [Grupo Six](https://ogruposix.com.br/) é especializado na criação de marcas de suplementos naturais voltadas para o bem-estar e a saúde.
 
-## Missão
-A missão do Grupo Six é ser a maior empresa de marketing de resposta direta da América Latina.
+Com presença em 5 países e campanhas de marketing que alcançam mais de 3 milhões de pessoas todos os dias, desenvolvemos produtos de alta qualidade.
 
-## Visão
-Liderar a venda de suplementos naturais de qualidade em todo o mundo através do marketing direto. Visualizamos marcas confiáveis e inspiradoras para a saúde e o bem-estar mundial.
-
-## Valores
-Comprometimento com produtos de alta qualidade, alinhados às tendências digitais e eficazes para o público-alvo.
+Nossa equipe de mais de 100 colaboradores, juntamente com profissionais da saúde, assegura que nossos suplementos gerem resultados confiáveis e eficazes para nossos clientes.
 
 ## Onde o Grupo Six Atua?
-Atuamos na América, com foco em países como **Brasil, Colômbia, México e EUA.** Nosso objetivo é expandir cada vez mais, levando nossos produtos e serviços para o maior número de pessoas possível.
+Atuamos em diversos países, como **Brasil, Estados Unidos, Canadá, México e Colômbia.** Nosso objetivo é oferecer produtos de alta qualidade ao redor do mundo.
 
 ## Expandir globalmente, com confiança, trazendo inovação e sofisticação ao mercado.
 
